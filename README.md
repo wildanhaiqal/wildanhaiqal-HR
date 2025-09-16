@@ -1,4 +1,4 @@
-# wildanhaiqal-HR
+# wildanhaiqal-Portfolio
 # Muhammad Wildan Haiqal Fisabillah, S.E., CHCO 👔  
 
 ## Tentang Saya
